@@ -1,1 +1,0 @@
-# Singapore-Warehouse-Robotics-Market
